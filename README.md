@@ -4,7 +4,7 @@ As a computer science intern, each day presents new challenges, learning opportu
 
 ## Early Morning: Energize and Prepare
 ### 5:00 AM - Neighborhood Run
-My day begins bright and early at 5:00 AM. I lace up my running shoes and head out for a run around the neighborhood. This early morning exercise not only helps me stay fit but also clears my mind and energizes me for the day ahead. The cool morning air and the quiet streets are the perfect backdrop for reflection and setting my intentions for the day.
+My day begins early at 5:00 AM. I lace up my running shoes and head out for a run around the neighborhood. This early morning exercise not only helps me stay fit but also clears my mind and energizes me for the day ahead. The cool morning air and the quiet streets are the perfect backdrop for reflection and setting my intentions for the day.
 
 ### 6:00 AM - Breakfast and Planning
 After my run, I return home, take a quick shower, and have a nutritious breakfast. As I eat, I review my schedule and to-do list, making sure I’m prepared for the day’s tasks. This quiet time helps me transition from personal to professional mode smoothly.
